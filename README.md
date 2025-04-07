@@ -6,3 +6,4 @@
 
 ### 感谢好友对作者的支持！
 <img src="./WechatIMG119.jpg" alt="如果有兴趣，送作者一杯咖啡。" width="200">
+<img src="./WechatIMG131.jpg" alt="如果有兴趣，送作者一杯咖啡。" width="200">
